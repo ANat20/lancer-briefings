@@ -1,22 +1,7 @@
-Born to a mechanic and NHP technician on a tertiary colony world of the Karrakis Trade Baronies known as Ravin: Vier was orphaned at age 13 alongside their then-toddler brother Craig. Officials declared it was due to complications related to an high class NHP cascade, as both their parents were researching the technology secretly against Union's charter, but Vier has only vague memories of the details after Union officials assumedly effected their memory of the incident and related details.
-Living between foster homes and the streets of an established colony city on Ravin, they took low income service jobs before eventually being mentored under a team of mech mechanics who travel with pilots on expeditions. Enamored by pilots but attached to their brother's daily needs, they took every chance possible to learn from all the mercenary Pilots: stories about the good, the bad, and the strange. This was also where Vier had their first contact with higher class NHPs since childhood, especially when working on the extremely suspicious HORUS frames.
+Rawhide was born on some newly colonized planet while their mom was providing medical assistance to a newly established civilization. They couldn't remember the name of it if they tried. The contract their mom had on the planet expired, and the two of them moved onto the next job before they'd even had a chance to open their eyes. Their father was a Lancer before them, so they didn't see him much outside of the very brief communication to their mother he was able to make while out working. 
 
-When Vier was 20 years old their brother, now 10, caught a fatal logic disease. Vier took out an insane loan to pay for treatment, and he luckily pulled through. Albeit with a new noose around their collective neck: debt collectors. Today, after 6 years with that debt only piling higher, and while now their brother is old enough to also be helping with it, they decided after years of doing everything for their brother, it was their time to risk it all instead of living under pure responsibility. Time to become a pilot and enjoy life.
+They spent most of their time as a child hanging around their mom while she worked, or staying on the transport ship to keep out of the way. When they were finally old enough, they eventually even began assisting their mom, learning much about medical care first-hand. On the handful of occasions their father had time between deployments, in which he would spend every day with his child, telling stories from work, helping their mother with her own work, and doing anything he could to make up for lost time. 
 
-## Random Facts:
+Eventually, encouraged by their father's tales of heroics and action, they started on the path to becoming a Lancer themselves. They hadn't had as strict of a military upbringing as their father, but knew that they could still do some good in the galaxy. 
 
-- Apprehensions about NHP exposure...
-
-- ...but is actually slowly nurturing a low-class NHP cloned from a mech's internal systems, in order to understand them, since they are generally unavoidable.
-
-- Loves their brother, but has some barely-subconscious hatred of the burden he put on them throughout their life.
-
-- Avoids damage to avoid repair work
-
-- Nonbinary
-
-- Dyes their hair green with chemicals that are definitely not meant for that
-
-- Only owns 2 sets of casual wear
-
-- Will steal anything halfway worth stealing if they think they can get away with it
+The rest is sort of history.
